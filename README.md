@@ -4,6 +4,7 @@ Me chamo Nicoly🖤;
 Curso o primeiro ano do ensino médio;
 Curitiba- PR;
  16 anos;
+flamengo🫀;
 Em meu tempo livre durmo,estudo e assisto series e filmes;
 Gosto muito de ouvir musicas também;
 E admirar a natureza🍃;
